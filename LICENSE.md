@@ -1,4 +1,4 @@
-# 
+# updated trader joe trading bot Plugin | token-swapping + rug-pull-detection offers the most advanced trader joe trading bot, with token-swapping and rug-pull-detection. Ideal for
 
 
 
